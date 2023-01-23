@@ -1,2 +1,2 @@
-GGE*6505 assignment
+GGE*6505 assignments are uploaded here
 
